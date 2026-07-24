@@ -147,6 +147,22 @@ Little Sister Falls in Love with Science.*
 
 ---
 
+## 👑 Episode 13｜人體城堡的冒牌貨大戰
+
+<p align="center">
+<img src="heavy-metals-impostor-keys.png" width="900">
+</p>
+
+---
+
+## ✨ Episode 14｜肚子裡的亮晶晶旅行
+
+<p align="center">
+<img src="edible-gold-shiny-journey.png" width="900">
+</p>
+
+---
+
 # 💗 A Gift
 
 這不只是一本科學漫畫。
