@@ -131,6 +131,22 @@ Little Sister Falls in Love with Science.*
 
 ---
 
+## 💙 Episode 11｜全宇宙最不黏人的氦氣小精靈
+
+<p align="center">
+<img src="helium-little-sprites.png" width="900">
+</p>
+
+---
+
+## ⚡ Episode 12｜微波爐裡的雷神索爾大戰
+
+<p align="center">
+<img src="microwave-thor-lightning-fork.png" width="900">
+</p>
+
+---
+
 # 💗 A Gift
 
 這不只是一本科學漫畫。
@@ -139,9 +155,17 @@ Little Sister Falls in Love with Science.*
 
 送給妹妹的禮物。
 
+希望妹妹在故事裡，
+
+發現科學的有趣，
+
+也感受到哥哥滿滿的愛。
+
 如果這份禮物，
 
-也能讓更多孩子愛上科學，
+也能陪伴更多孩子，
+
+一起愛上科學，
 
 那就是哥哥最開心的事。
 
